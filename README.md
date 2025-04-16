@@ -9,7 +9,7 @@
   awkward person when it comes to social interactions due to personal issues, so i apologize for that! again, just be patient with me.
 
 𓏵 im a very mocking person, and i make some harsh and sarcastic comments. if this makes you uncomfortable, let me know! i don't bite 
-  (unless.../j).  I MAKE A LOT OF KYS JOKES BTW! let me know if they make you uncomfortable.
+  (unless.../j).  I MAKE A LOT OF KYS JOKES BTW! let me know if they make you uncomfortable too.
   although i sometimes slip out unintentionally, so i recommend you to avoid interacting with me if this bother you that much (im sorry!). 
  
 
