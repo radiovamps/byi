@@ -16,10 +16,15 @@
   ᡣ ︠ 𓈒. .𓈒 ︡𐑠 ‿︵‿︵‿୨ ꒰ DNI. ! ꒱ 
 
 𓏵 basic dni criteria (racism, homphobia, pdfiles, etc..)
+
 𓏵 any sexual harassment/rape joke. like actually fuck off.
+
 𓏵 ex friends (for obvious reasons ermmmmmm)
+
 𓏵 ages under 13 
+
 𓏵 (dniuf) project sekai fans, i just dislike their fanbase, i know some people are chill so in that case iwc!
+
 𓏵 ppl who hate on the fnaf novels. THE FNAF NOVELS HATE IS NOT TOLERATED HERE same with carlton's slander 
 
 
