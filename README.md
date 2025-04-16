@@ -25,7 +25,7 @@
 
 𓏵 (dniuf) project sekai fans, i just dislike their fanbase, i know some people are chill so in that case iwc!
 
-𓏵 ppl who hate on the fnaf novels. THE FNAF NOVELS HATE IS NOT TOLERATED HERE same with carlton's slander 
+𓏵 ppl who hate on the fnaf novels. i wont tolerate hate for the fnaf novels here. euh eUEH EUGH EU eugh
 
 
                WIP, IM SO LAZY
