@@ -9,7 +9,18 @@
   awkward person when it comes to social interactions due to personal issues, so i apologize for that! again, just be patient with me.
 
 𓏵 im a very mocking person, and i make some harsh and sarcastic comments. if this makes you uncomfortable, let me know! i don't bite 
-  (unless.../j). 
-  although i sometimes slip out unintentionally, so i recommend you to avoid interacting with me if this bother you that much (im sorry!).
+  (unless.../j).  I MAKE A LOT OF KYS JOKES BTW! let me know if they make you uncomfortable.
+  although i sometimes slip out unintentionally, so i recommend you to avoid interacting with me if this bother you that much (im sorry!). 
+ 
 
-  ᡣ ︠ 𓈒. .𓈒 ︡𐑠 ‿︵‿︵‿୨ ꒰ DNI. racist, homophobic, ableist, rape jokes, pdfiles, grumers, problematic people... etc! + COMSHIPPERS! ꒱
+  ᡣ ︠ 𓈒. .𓈒 ︡𐑠 ‿︵‿︵‿୨ ꒰ DNI. ! ꒱ 
+
+  𓏵 basic dni criteria (racism, homphobia, pdfiles, etc..)
+  𓏵 any sexual harassment/rape joke. like actually fuck off.
+  𓏵 ex friends (for obvious reasons ermmmmmm)
+  𓏵 ages under 13 
+  𓏵 (dniuf) project sekai fans, i just dislike their fanbase, i know some people are chill so in that case iwc!
+  𓏵 ppl who hate on the fnaf novels. THE FNAF NOVELS HATE IS NOT TOLERATED HERE same with carlton's slander 
+
+
+               WIP, IM SO LAZY
