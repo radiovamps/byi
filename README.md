@@ -15,7 +15,7 @@
 
   ᡣ ︠ 𓈒. .𓈒 ︡𐑠 ‿︵‿︵‿୨ ꒰ DNI. ! ꒱ 
 
-𓏵 basic dni criteria (racism, homphobia, pdfiles, etc..)
+𓏵 basic dni criteria (racism, homphobia, ableism, etc..)
 
 𓏵 any sexual harassment/rape joke. like actually fuck off.
 
