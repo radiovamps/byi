@@ -1,7 +1,7 @@
 
 # byi
-ᡣ ︠ 𓈒.  .𓈒 ︡𐑠 ‿︵‿︵‿୨ ꒰ hihihi! i use any pronouns and i have no preference, so use whichever u like. btw IM A MINOR! dont be weird towards me 
-                       i will block you inmediatly. ꒱
+->ᡣ ︠ 𓈒.  .𓈒 ︡𐑠 ‿︵‿︵‿୨ ꒰ hihihi! i use any pronouns and i have no preference, so use whichever u like. btw IM A MINOR! dont be weird towards me 
+                       i will block you inmediatly. ꒱<-
 
 𓏵 u can always interact with me whenever you want, although im mostly offtab/afk so in case i didnt respond please send whisper or c+h (i dont mind, really). ^_^
 
